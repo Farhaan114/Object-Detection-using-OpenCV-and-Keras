@@ -48,7 +48,7 @@ Contributions to this project are welcome! Feel free to submit bug reports, feat
 
 ## Contact
 
-For any inquiries or support, please contact saranmass234@gmail.com
+For any inquiries or support, please contact mdfarhaanhere@gmail.com
 
 ---
 
